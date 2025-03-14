@@ -1,1 +1,1 @@
-# brawlPirates.github.io
+# pirat.github.io
